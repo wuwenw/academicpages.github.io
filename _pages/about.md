@@ -43,9 +43,9 @@ MISC.
 ------
 1. My name is 王无闻 in Chinese 
 2. I'm a fan of Kumamon and Domokun
-3. I generally prefer cats to dogs except Husky, Border Collie and Terrier
+3. I generally prefer cats to dogs except for Husky, Border Collie, and Terrier
 4. I'm a fan of the greatest Laker of all time - "The Black Mamba" - Kobe Bryant
 5. I'm a fan of Arknights - ドクター、終わってない仕事がたくさんありますから、まだ休んじゃダメですよ。
-6. I have many friends who are way more smarter than I am. Feel free to check out their websites:
+6. I have many friends who are way smarter than I am. Feel free to check out their websites:
 [Jerry](https://www.linkedin.com/in/zhanyan-zhu-0b03a4137/)
 
