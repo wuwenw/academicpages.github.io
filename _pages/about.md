@@ -47,5 +47,5 @@ MISC.
 4. I'm a fan of the greatest Laker of all time - "The Black Mamba" - Kobe Bryant
 5. I'm a fan of Arknights - ドクター、終わってない仕事がたくさんありますから、まだ休んじゃダメですよ。
 6. I have many friends who are way smarter than I am. Feel free to check out their websites:
-[Jerry](https://www.linkedin.com/in/zhanyan-zhu-0b03a4137/)
+[Jerry](https://www.linkedin.com/in/zhanyan-zhu-0b03a4137/), [Yifan](https://yifanguan.github.io/), [Jiawei](https://jw-liu.xyz/), [Xiangfeng](https://xzhu27.me/), [Weiqi](https://vic0428.github.io/)
 
