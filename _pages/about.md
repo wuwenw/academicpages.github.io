@@ -41,8 +41,8 @@ Teaching
 
 MISC.
 ------
-1. I'm a fan of the greatest Laker of all time - "The Black Mamba" - Kobe Bryant
-2. I'm a fan of Kumamon
+1. I'm a fan of Kumamon
+2. I'm a fan of the greatest Laker of all time - "The Black Mamba" - Kobe Bryant
 3. I'm a fan of Arknights - I'll be a true doctor at the end of the day
 4. I generally prefer cats to dogs except Husky, Collie and Terrier
 5. I have many friends who are way more smarter than I am. Feel free to check out their websites:
