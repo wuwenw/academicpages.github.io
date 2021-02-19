@@ -42,7 +42,7 @@ Teaching
 MISC.
 ------
 1. My name is 王无闻 in Chinese 
-2. I generally prefer cats to dogs except Husky, Collie and Terrier
+2. I generally prefer cats to dogs except Husky, Border Collie and Terrier
 3. I'm a fan of Kumamon and Domokun
 4. I'm a fan of the greatest Laker of all time - "The Black Mamba" - Kobe Bryant
 5. I'm a fan of Arknights - ドクター、終わってない仕事がたくさんありますから、まだ休んじゃダメですよ。
